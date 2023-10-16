@@ -6,13 +6,3 @@
 <img align="right" alt="coding" width="400" src="https://user-images.githubusercontent.com/74038190/235294016-6556559a-ed58-4ca6-a4c9-c307cbe0b6b7.gif">
 
 
-Get your own animated socail media icons at  
-
-
-
-
-
-
-      https://icons8.com/icons/set/social-media--animated
-
-
